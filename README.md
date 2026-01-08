@@ -1,3 +1,4 @@
-“*Hₐᵢₗ Vₒₓ﹐⠀⠀ₕₐᵢₗ Vₒₓ﹐⠀⠀ₕₐₐₐᵢₗ Vₒₓ﹐⠀⠀ₕₐₐᵢₗₗ Vₒₓ!*”
+“*Hₐᵢₗ Vₒₓ﹐⠀⠀ₚᵣₐᵢₛₑ Vₒₓ﹐⠀⠀ₕₐᵢₗ Vₒₓ﹐⠀⠀ₚᵣₐₐₐᵢₛₑₑₑ Vₒₓ﹐⠀⠀ₕₐₐₐᵢₗ Vₒₓ﹐⠀⠀ₚᵣₐᵢₛₑ Vₒₓ﹐⠀⠀ₕₐₐᵢₗₗ Vₒₓ!*”
 
 ![.](https://i.postimg.cc/Nf0dpnzK/Untitled926-20260107215340.png)⠀⠀⠀⠀![.](https://i.postimg.cc/MTW7XMkp/Untitled923.png)⠀⠀⠀⠀![.](https://i.postimg.cc/T11nqzYB/Untitled924.png)⠀⠀⠀⠀![.](https://i.postimg.cc/PxrDTgZ2/Untitled927.png)
+
