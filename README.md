@@ -1,4 +1,4 @@
-> “ I'm just like you﹐  except  I'm   SMARTER﹐   SHARPER﹐   <ins>**BRIGHTER**</ins>﹐   NEWER! ” ⠀ <img src="https://i.postimg.cc/wjJHyjL7/Tumblr-l-183032230848926.gif" width="25" height="18" />
+> “ I'm just like you﹐  except  I'm   SMARTER﹐   SHARPER﹐   <ins>**BRIGHTER**</ins>﹐   NEWER! ” ⠀ <img src="https://i.postimg.cc/wjJHyjL7/Tumblr-l-183032230848926.gif" width="35" height="25" />
 
 <img src="https://i.postimg.cc/GpFGD9NR/Untitled931-20260108033131.png" width="520" height="430" />
  
