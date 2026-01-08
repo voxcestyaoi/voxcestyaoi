@@ -1,2 +1,1 @@
-->![](https://files.catbox.moe/kg9e5o.gif){300:%}
-![](https://files.catbox.moe/r86xp8.gif)
+![.](https://i.postimg.cc/Nf0dpnzK/Untitled926-20260107215340.png) ![.](https://i.postimg.cc/MTW7XMkp/Untitled923.png) ![.](https://i.postimg.cc/T11nqzYB/Untitled924.png) ![.](https://i.postimg.cc/PxrDTgZ2/Untitled927.png)
