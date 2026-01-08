@@ -6,7 +6,7 @@
 
 -  ***Minor*** (<code style="color">𝟎𝟑/𝟏𝟖/𝟎𝟖</code>)⠀―⠀I don't mind talking to adults﹐ but know your boundaries﹐ obviously.
 
-- Diagnosed <ins>**narcissist**</ins> ﹠ *schizoid* with OCD⠀⁺⠀~~unlisted disorders~~ and a <code style="color"><ins>**GODPLEX**</ins></code>! Interact at your own risk (**/Joke**)  ―  I'm friendly﹐ I promise.
+- Diagnosed <ins>**narcissist**</ins> ﹠ *schizoid* with OCD⠀⁺⠀~~unlisted disorders~~ and a <code style="color"><ins>**GODPLEX**</ins></code> (*I am my own god and martyr* ˆ__ˆ)!⠀Interact at your own risk (**/Joke**)  ―  I'm friendly﹐ I promise.
 
 - ⠀⠀⠀I do not do RPs﹐ but feel free to send a casual chat or question(s). I enjoy cuddling while away from keyboard!⠀Don't be shy﹐ I accept friend requests.
 
