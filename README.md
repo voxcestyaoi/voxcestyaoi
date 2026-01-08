@@ -1,8 +1,13 @@
 > “ I'm just like you﹐  except  I'm   SMARTER﹐   SHARPER﹐   <ins>**BRIGHTER**</ins>﹐   NEWER! ”
 
-⠀⠀⠀Vox <ins>fictionkin</ins> and <ins>**yumeshipper**</ins>.⠀**Openly sharing**⠀﹠⠀multishipper.⠀⠀Ask 4 ships and *do not cause conflict*.⠀**Do not interact if you do not like what you see**.
+ 
+⠀⠀⠀Vox <ins>fictionkin</ins> and <ins>**yumeshipper**</ins>. I fucking love my sexy﹐ insecure television malewife. (>؂ •́)ᕗ <ins>He is me and I am him</ins>.⠀**Openly sharing**⠀﹠⠀multishipper.⠀⠀Ask 4 ships and *do not cause conflict*.⠀**Do not interact if you do not like what you see**.
 
-- ⠀⠀⠀I do not do RPs﹐ but feel free to send a casual chat or question(s). 
+-  ***Minor*** (𝟎𝟑/𝟏𝟖/𝟎𝟖)⠀―⠀I don't mind talking to adults﹐ but know your boundaries﹐ obviously.
+
+- Diagnosed <ins>**narcissist**</ins> ﹠ *schizoid* with OCD⠀⁺⠀~~unlisted disorders~~. Interact at your own risk (**/Joke**)  ―  I'm friendly﹐ I promise.
+
+- ⠀⠀⠀I do not do RPs﹐ but feel free to send a casual chat or question(s). I enjoy cuddling while away from keyboard! 
 
 <img src="https://i.postimg.cc/Nf0dpnzK/Untitled926-20260107215340.png" width="170" height="150" /> <img src="https://i.postimg.cc/MTW7XMkp/Untitled923.png" width="170" height="150" /> <img src="https://i.postimg.cc/T11nqzYB/Untitled924.png" width="170" height="150" /> <img src="https://i.postimg.cc/PxrDTgZ2/Untitled927.png" width="170" height="150" />
 
