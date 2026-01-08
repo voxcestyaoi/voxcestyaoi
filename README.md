@@ -7,7 +7,7 @@
 
 - Diagnosed <ins>**narcissist**</ins> ﹠ *schizoid* with OCD⠀⁺⠀~~unlisted disorders~~. Interact at your own risk (**/Joke**)  ―  I'm friendly﹐ I promise.
 
-- ⠀⠀⠀I do not do RPs﹐ but feel free to send a casual chat or question(s). I enjoy cuddling while away from keyboard!
+- ⠀⠀⠀I do not do RPs﹐ but feel free to send a casual chat or question(s). I enjoy cuddling while away from keyboard!⠀Don't be shy﹐ I accept friend requests.
 
 #### D.N.I.⠀⠀―⠀⠀Proship/Darkship/etc﹐ PEDOPHILIA﹐ INCEST﹐ sexist﹐ racist﹐ glorifies/jokes about rape and SA or anything else of that sort.⠀(I shouldn't even have to say that!⠀Fuck off!)
 
