@@ -1,5 +1,6 @@
 > “ I'm just like you﹐  except  I'm   SMARTER﹐   SHARPER﹐   <ins>**BRIGHTER**</ins>﹐   NEWER! ”
 
+<img src="https://i.postimg.cc/GpFGD9NR/Untitled931-20260108033131.png" width="315" height="220" />
  
 ⠀⠀⠀<code style="color">Vox <ins>fictionkin</ins> and <ins>**yumeshipper**</ins></code>. I fucking love my sexy﹐ insecure television malewife. (>؂ •́)ᕗ <ins>He is me and I am him</ins>.⠀**Openly sharing**⠀﹠⠀multishipper.⠀⠀Ask 4 ships and *do not cause conflict*.⠀**Do not interact if you do not like what you see**.
 
