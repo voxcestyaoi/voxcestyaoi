@@ -1,7 +1,7 @@
 > “ I'm just like you﹐  except  I'm   SMARTER﹐   SHARPER﹐   <ins>**BRIGHTER**</ins>﹐   NEWER! ”
 
  
-⠀⠀⠀Vox <ins>fictionkin</ins> and <ins>**yumeshipper**</ins>. I fucking love my sexy﹐ insecure television malewife. (>؂ •́)ᕗ <ins>He is me and I am him</ins>.⠀**Openly sharing**⠀﹠⠀multishipper.⠀⠀Ask 4 ships and *do not cause conflict*.⠀**Do not interact if you do not like what you see**.
+⠀⠀⠀<code style="color : fuchsia">Vox <ins>fictionkin</ins> and <ins>**yumeshipper**</ins></code>. I fucking love my sexy﹐ insecure television malewife. (>؂ •́)ᕗ <ins>He is me and I am him</ins>.⠀**Openly sharing**⠀﹠⠀multishipper.⠀⠀Ask 4 ships and *do not cause conflict*.⠀**Do not interact if you do not like what you see**.
 
 -  ***Minor*** (𝟎𝟑/𝟏𝟖/𝟎𝟖)⠀―⠀I don't mind talking to adults﹐ but know your boundaries﹐ obviously.
 
