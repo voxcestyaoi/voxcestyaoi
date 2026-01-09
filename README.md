@@ -1,6 +1,9 @@
-> “ I'm just like you﹐  except  I'm   SMARTER﹐   SHARPER﹐   <ins>**BRIGHTER**</ins>﹐   NEWER! ” ⠀ <img src="https://i.postimg.cc/wjJHyjL7/Tumblr-l-183032230848926.gif" width="35" height="25" />
+#### I'm just like you﹐  except  I'm   SMARTER﹐   SHARPER﹐   <ins>**BRIGHTER**</ins>﹐   NEWER! ⠀ <img src="https://i.postimg.cc/wjJHyjL7/Tumblr-l-183032230848926.gif" width="35" height="25"/>
 
-<img src="https://i.postimg.cc/GpFGD9NR/Untitled931-20260108033131.png" width="520" height="430" /> <img src="https://i.postimg.cc/W4mjNGHf/Untitled934-20260108184114.png" width="430" height="430" />
+> <img src="https://i.postimg.cc/GpFGD9NR/Untitled931-20260108033131.png" width="520" height="430" /> “ 𝐼 𝑘𝑛𝑜𝑤 𝑡𝑜𝑜 𝑤𝑒𝑙𝑙 𝐼'𝑚 𝑢𝑛𝑑𝑒𝑟𝑛𝑒𝑎𝑡ℎ 𝑦𝑜𝑢𝑟 𝑠𝑝𝑒𝑙𝑙...
+𝑆𝑜﹐ 𝑑𝑎𝑟𝑙𝑖𝑛𝑔﹐ 𝑖𝑓 𝑦𝑜𝑢 𝑠𝑚𝑒𝑙𝑙 𝑠𝑜𝑚𝑒𝑡ℎ𝑖𝑛𝑔 𝑏𝑢𝑟𝑛𝑖𝑛𝑔﹐ 𝑖𝑡'𝑠 𝑚𝑦 ℎ𝑒𝑎𝑟𝑡﹐ '𝑠𝑐𝑢𝑠𝑒 𝑚𝑒.
+𝑇𝑎𝑘𝑒 𝑦𝑜𝑢𝑟 𝑐𝑖𝑔𝑎𝑟𝑒𝑡𝑡𝑒 𝑓𝑟𝑜𝑚 𝑖𝑡𝑠 ℎ𝑜𝑙𝑑𝑒𝑟 𝑎𝑛𝑑 𝑏𝑢𝑟𝑛 𝑦𝑜𝑢𝑟 𝑖𝑛𝑖𝑡𝑖𝑎𝑙𝑠 𝑖𝑛 𝑚𝑦 𝑠ℎ𝑜𝑢𝑙𝑑𝑒𝑟﹐ 𝑎ℎ.ᐟ
+𝐹𝑟𝑎𝑐𝑡𝑢𝑟𝑒 𝑚𝑦 𝑠𝑝𝑖𝑛𝑒 𝑎𝑛𝑑 𝑠𝑤𝑒𝑎𝑟 𝑡ℎ𝑎𝑡 𝑦𝑜𝑢'𝑟𝑒 𝑚𝑖𝑛𝑒 𝑎𝑠 𝑤𝑒 𝑑𝑎𝑛𝑐𝑒 𝑡𝑜 𝑡ℎ𝑒 𝑀𝑎𝑠𝑜𝑐ℎ𝑖𝑠𝑚 𝑇𝑎𝑛𝑔𝑜. ”
  
 ⠀⠀⠀<code style="color">Vox <ins>fictionkin</ins> and <ins>**yumeshipper**</ins></code>. I fucking love my sexy﹐ insecure television malewife. (>؂ •́)ᕗ <ins>He is me and I am him</ins>.⠀**Openly sharing**⠀﹠⠀multishipper.⠀⠀Ask 4 ships and *do not cause conflict*.⠀**Do not interact if you do not like what you see**.
 
